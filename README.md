@@ -3,7 +3,7 @@
   <h2 align="center">
     ──「 Krish ダ Network 
 <p align="center">
-  <img src="https://i.ibb.co/2FSqhSr/photo-2024-09-19-18-33-46-7416425646991081500.jpg">
+  <img src="https://t.me/L4inkk/70">
 </p>
 
 <h3 align="center">
